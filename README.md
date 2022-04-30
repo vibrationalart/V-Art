@@ -1,0 +1,2 @@
+# V-Art
+Some people are sensitive to vibrations.  Hereditarily speaking, I am very sensitive to waves, such as electric magnetic fields and other fields or waves, and radiations. Of course good ones as well such as Qi, SuperLight, A Nuous, Chi, Biomagnetic Energy, Wilhelm Reich's Orgone Energy, Tesler's Free Earth Energy, Animal Magnetism, Space Energy, Vacuum Energy, Zero Point Energy, Life Force, Neutrino，etc. with different names depending on different cultures and different fields(by John Milewski).
